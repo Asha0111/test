@@ -1,0 +1,2 @@
+Three 90 Challenge is back on popular demand! After processing refunds worth INR 1CR+, we are back with the offer if you missed it the first time. Get 90% course fee refund in 90 days. Avail now!
+Summer-time is here and so is the time to skill-up! More than 5,000 learners have now completed their journey from basics of DSA to advanced level development programs such as Full-Stack, Backend Development, Data Science. 
